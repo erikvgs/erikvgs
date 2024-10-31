@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭Graduando em Sistemas de Informação <br>⚡Entusiasta apaixonado pela Tecnologia e Programação<br>🤝Estou procurando um Estágio <br><br>
+🔭Graduando em Sistemas de Informação <br>⚡Entusiasta apaixonado pela Tecnologia e Programação
 
 
 ## 🌐 Socials:
